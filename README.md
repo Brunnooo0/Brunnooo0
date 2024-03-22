@@ -10,6 +10,6 @@ Meu nome é Bruno Lopes
 
 bruno.lopes14@escola.pr.gov.br
 
-@brunno_lopes14 
+@bruno.lop3s
 
 ![](https://media.tenor.com/hbbjhMQwQKQAAAAC/no-thanks-resident-evil4.gif)
